@@ -1,2 +1,3 @@
 # hello-world
-figuring out 
+whaddup 
+making some changes for sale of this  tutorial //insert moan emoji here
